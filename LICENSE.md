@@ -1,4 +1,4 @@
-
+Experience anime card collection like never before with elite Scripts for anime card collection, the #1 Script. Includes one-hit kill and esp for
 
 
 
